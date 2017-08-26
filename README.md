@@ -1,2 +1,0 @@
-# skykykykykykykykykykykys.github.io
-blog
